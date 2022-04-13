@@ -21,9 +21,9 @@ After trying cages for years, `Kink3d cobra` has been my favorite so far. The `C
 
 * [Ebay - Curved Ring Kink3d Cobra Knockoff ~ $28](https://www.ebay.com/itm/174816631721?hash=item28b3e21ba9:g:huIAAOSwIcFg1x6l)
    * Use this to figure out what length works out best. Measure when flaccid:
-      * Sung w/ Arch Ring - 75mm
-	  * Comfort w/ Arch Ring - 85mm
-	  * Max w/ Arch Ring - 100mm
+      * Sung w/ Arch Ring - 75mm (2.95in)
+      * Comfort w/ Arch Ring - 85mm (3.345in)
+      * Max w/ Arch Ring - 100mm (3.93in)
    * Comes with range of curved rings to try and find a fit. Want it to be tight enough to not fall down.
       * 42mm,45mm,48mm,52mm
    * Budget price but perfectly usable
