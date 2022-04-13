@@ -6,9 +6,11 @@ Documenting some options for locking up a well endowed sub.
 
 There is most likely a `goldilocks` combination of cage length, ring size, and possibly a support strap.
 
+Ball trap devices really come down to trial and error - finding the right combo of cage length and ring size where the cage doesn't slip down and is comfortable.
+
 ### Device Options
 
-After trying cages for years, `Kink3d cobra` has been my favorite so far. The Cherry Keeper is pretty good too and used that for a couple years.
+After trying cages for years, `Kink3d cobra` has been my favorite so far. The `Cherry Keeper` is pretty good too and used that for a couple years.
 
 * Easy to clean
 * can be worn easily for a week between cleanings
