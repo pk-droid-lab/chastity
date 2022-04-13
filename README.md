@@ -92,6 +92,7 @@ Examples of support straps:
 * Cage Measure Sub when flaccid
 * Choose [Ebay - Curved Ring Kink3d Cobra Knockoff ~ $28](https://www.ebay.com/itm/174816631721?hash=item28b3e21ba9:g:huIAAOSwIcFg1x6l)
    * get one at flaccid length w/ Arch Ring
+   * affordable enough if the first chosen length doesn't work, just try a bigger or smaller one
 * Play with ring sizes until one is comfortable and tight enough not to fall down
 * Use a support Strap - get a couple to play with
    * [eBay - Elastic Support Strap - $9.99 ](https://www.ebay.com/itm/384743380861?hash=item59947e177d:g:NF8AAOSwUK5iB2A~)
